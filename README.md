@@ -1,2 +1,0 @@
-# Novatrevel.github.io
-Novatrevel
